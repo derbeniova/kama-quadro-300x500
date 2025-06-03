@@ -1,0 +1,1 @@
+# kama-quadro-300x500
